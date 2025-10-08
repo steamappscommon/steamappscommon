@@ -1,1 +1,2 @@
-![](https://media1.tenor.com/m/ZLyN1Rc9W2IAAAAd/die-of-death-roblox.gif)
+<img width="642" height="489" alt="image" src="https://github.com/user-attachments/assets/c1113525-a032-47f3-802f-e0c4dfd3ffd3" />
+
