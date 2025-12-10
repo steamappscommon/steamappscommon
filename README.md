@@ -1,2 +1,1 @@
-
-https://github.com/user-attachments/assets/e26ae7e3-ec01-431b-a31e-a485e35c3867
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ggpqxrhmf4mlyipbvys4snzlcu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&mode=dark&bar_color=2456db&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
